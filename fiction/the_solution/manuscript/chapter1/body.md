@@ -1,0 +1,10 @@
+It was late at night, everybody was already asleep. As usual, the night was cold, the temperature difference from the high point during the day to the low point at night is as great as 50 °C in this type of environment. In the distance, only the creaking of the mechanisms used by the space elevator could be heard. It was an invention that allowed people to transport merchandise and goods to the outermost orbit of the planet efficiently and reliably. This technology was common across all civilizations and reduced the cost of space traveling by 100 times, without this invention space traveling would not have been possible.
+
+Not far from a small oasis, there was a group of Merql drinking water, resting after a hot day, these animals are especially suited for the dessert, (provide more information about the animals, they are domestic ). 
+
+A particular sound from the space elevator, one much more strident than usual, awakened a young girl, who lived near the small oasis, it was a small village, and only a few hundred lived there. She got out of bed and looked out of the small window. She was still half asleep, her eyes still half closed, and her vision blurred. Then she looked at the sky, and a very bright light from the sky dazzled her. It took her a few seconds to restore her sight, and it was there, the image of the only satellite this planet had, dominating the entire night sky. She was completely mesmerized.
+
+
+The window was too small, and the glass was dirty, filled with desert dust. She decided to get out of the small house, she aimed to get to the top of the roof to have a better view of the sky. She took a ladder and started to climb, she stepped on each step carefully, so as not to produce any noise. This was not her first time doing this, she acted in this way to avoid awakening the rest of the family that was sleeping in the house. After a few minutes, she was on the roof, lying down with her eyes looking up at the stars. 
+
+(give an introduction of the culture and the planet)
