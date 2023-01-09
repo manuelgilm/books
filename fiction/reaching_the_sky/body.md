@@ -33,11 +33,24 @@ A few days had passed since the idea of escaping from the planet had arisen, and
 
 It was one of the chambers that had just arrived on the platform, but in this case, the sound coming from this one was something a little different from what he was used to. The chamber was slightly larger, and the coating seemed more reinforced than usual. He hurried to take the report indicating the type of items the chamber was carrying. Surprisingly, the chamber was empty. After scrutinizing the documents related to that particular chamber, he realized that this was a special chamber designed to transport animals. He was surprised, and frustrated with himself at the same time, after all, it was his job to know this information.
 
-Although commerce with the neighboring planet was declining, there was a relatively constant flow of goods between the two planets. In this particular case, the neighboring planet was ordering several hundred camels. Even though this animal was known for its suitability for desert climates, it was also quite popular for the taste of its meat, and inhabitants from the neighboring planet knew this very well, the order was to satisfy the exquisite palates of the inhabitants of the other planet.
+Although commerce with the neighboring planet was declining, there was a relatively constant flow of goods between the two planets. In this particular case, the neighboring planet was ordering several hundred <span style="background-color:yellow">camels</span>. Even though this animal was known for its suitability for desert climates, it was also quite popular for the taste of its meat, and inhabitants from the neighboring planet knew this very well, the order was to satisfy the exquisite palates of the inhabitants of the other planet.
 
 Soon after knowing this information, a thought came to Jakl's mind, startling him in the same way that lightning surprises people in the darkest of storms. If the chamber was able to transport living animals there should not be problems transporting him. His heart began to beat faster than normal. Images of him living somewhere other than the dictatorship in which he lived began to flood into his head.
 
+<hr>
+
+There was not much time for thinking or planning. The window of opportunity was only a few days. He knew that he needed to act sooner. otherwise, he would lose the opportunity. However, there was a new problem. This type of cargo was not like the others. These animals required supervision and someone that guide them to the chamber. To guarantee the correct transportation of living animals the system assigned a different worker that was going to take the animals from the <span style="background-color:yellow">place where animals were</span> to the chamber.
+
+The problem was that person was also going to check the status of the chamber before closing it, and if another living creature different from <span style="background-color:yellow">camels</span> would have been found the alarms would have kicked off. And the departure of the chamber would have been impeded. At first, Jakl thought about convincing the person about escaping together, however, that was not advisable at all. In addition, the departure of the chamber was scheduled for the day shift, meaning that someone else was going to be there performing the tasks usually Jakl was responsible for.
+
+Although the planet was facing one of the worst situations regarding social discomfort, there was still many followers of the regimen, and it was not an easy task to distinguish between someone that is against the system from someone that is not. In addition, there was not enough space in the chamber for more than one person. Jakl mulled over all possible scenarios that could lead him to freedom, and it was not something easy to do.
+
+<hr>
+
+# The day
 
 
 # Arrival
+
+
 
