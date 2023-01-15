@@ -49,6 +49,14 @@ Although the planet was facing one of the worst situations regarding social disc
 
 # The day
 
+It was still dark outside, and Jakl had decided to sneak into the chamber and hide in one of the compartments used to store the animal's food. It was an extremely risky idea, but it was the only thing that countless hours of pondering brought to his mind. It was not a bad idea, he was not a tall man, so easily could fit into the compartment, and the travel was not going to take too long.
+
+The time had come. Jakl had only a few minutes to move from the section he was working to the section in this new chamber was going to depart from. For any other person, the building would have looked like a maze, however, after years and years of working in the same building, navigating through the complicated corridors was not a problem for Jakl, he knew almost with certainty where each aisle led. 
+
+After a few minutes of moving quickly but without raising suspicion, Jakl was in front of the chamber. He quickly introduced some commands, which he had previously stoled, on the gate control panel, and a series of sounds indicated that the machine was verifying the password. Each second that went was longer than the previous one, the 4 or 5 seconds Jakl had to wait to get the confirmation of the code seemed like an eternity, finally, the gate opened allowing him to enter the chamber and hide in one of the compartment's food. 
+
+A few seconds after closing the door of the compartment happened, someone appeared, 
+
 
 # Arrival
 
