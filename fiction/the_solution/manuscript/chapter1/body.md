@@ -7,4 +7,4 @@ A particular sound from the space elevator, one much more strident than usual, a
 
 The window was too small, and the glass was dirty, filled with desert dust. She decided to get out of the small house, she aimed to get to the top of the roof to have a better view of the sky. She took a ladder and started to climb, she stepped on each step carefully, so as not to produce any noise. This was not her first time doing this, she acted in this way to avoid awakening the rest of the family that was sleeping in the house. After a few minutes, she was on the roof, lying down with her eyes looking up at the stars. 
 
-(give an introduction of the culture and the planet)
+(give an introduction to the culture and the planet)
