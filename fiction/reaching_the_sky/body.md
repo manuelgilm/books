@@ -11,7 +11,7 @@ Some workers at the station spent their hours in complete isolation, with no int
 After a few minutes, the sensation of the cigarette in his mouth was just a memory. But he was grateful that the chemicals he had just absorbed were now in his brain, helping him to get through the remaining hours of work. The task was straightforward: check the transport chambers and ensure that all the specified merchandise was there. As someone with access to these chambers before anyone else, he could receive and put smuggling. Obtaining cigarettes this way was risky, as the punishment for smuggling was death, but life was a burden to him. From his perspective, cigarettes were worth the risk.
 
 
-After hours of tedious work, the burden became unbearable, and suddenly an idea flashed through his mind. What if he got into one of the chambers and escaped? He knew that all the products were destined for a neighboring planet, and once there, he could start a new without the absurd limitations that his native planet's leaders had imposed. Life was beginning to make sense again.
+After hours of tedious work, the burden became unbearable, and suddenly an idea flashed through his mind. What if he got into one of the chambers and escaped? He knew that all the products were destined for a neighboring planet, and once there, he could start a new one without the absurd limitations that his native planet's leaders had imposed. Life was beginning to make sense again.
 
 # Planning the Escape
 
