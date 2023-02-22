@@ -19,18 +19,22 @@ He knew well enough that all the products were destined for a neighboring planet
 //___↥↥↥↥(miso's note: **?place** : All this while I thought the scene takes place in open night air. I wasn't sure if the scene change dplace, and if it does, I don't know when and where. The marked (**?place**) indicates where I think we can insert more description of the place)___
 
 # Planning the Escape
-___↧↧↧↧↧↧[possible Revision required: paragraph style (...: "...")]↧↧↧↧↧↧__
+
+___↧↧↧↧↧↧[possible Revision required: paragraph style (...: "...")]↧↧↧↧↧↧___
+
 As Jakl's shift was coming to an end, a robotic voice suddenly spoke through his intercom. _(Where is his intercom placed? breast pocket? wristwatch? or a speaker that is in the ceiling of the office?)_
 
 | The voice: "Unit numbered ninety-two Jakl Howerl may leave the complex by gate numbered seven."
+
 ___↥↥↥↥↥↥[End of possibly required Revision]↥↥↥↥↥↥___
+
 Jakl quickly tidied up his workstation, making sure there were no detectable remnants of his disobedience, and headed towards the designated exit. This was, perhaps, one of the first times he have had a genuine desire to get back to his room as quickly as could. There is a lot to think about. The more he thought, the more his plan felt like a wishful dream rather than something feasible.
 
 The doors opened to reveal the sun in its full glory in the sky, unaffected by the thick clouds. For most, it would have been the perfect day to find various excuses to soak up the warmth outside. However, Jakl paid no heed and made way. He was working the night shift, after all, the daytime weather was irrelevant to him. 
 
 Upon having arrived in his ___(an adjective)___ room, he took a bath and prepared for slumber. There wasn't much to do — his ritual consisted of making sure the sleep gas generator was on. This device, as its name suggests, creates an artificial atmosphere filled with a somniferous gas and would turn off, automatically, after several minutes. The room had no windows, so the piercing sunlight couldn't reach any corner of it, allowing darkness its reign. Finally, fatigue took over, and after a few minutes, it would have been impossible to tell whether Jakl was a living creature or a corpse.
 
-※※※ ___(This is usually used to indicate change of time/scene/narrator)___
+※※※ ___(This '※' symbol is usually used to indicate change of time/scene/narrator)___
 
 Several hours later, Jakl awoke with more doubts than certainties. He knew it wouldn't be easy. Regardless, he began devising a plan to escape using the space elevator. The transport chambers, that he had access to, were not designed to carry crew. The journey would be dangerous and cramped. His objective was to reach the spacecraft that orbited the planet. Once there, it would be a one-week trip from the outer atmosphere to the neighboring planet. These vessels were meant to transport only merchandise and, hence, it was completely automated. Once he infiltrated one of these spacecraft, he would only need to twiddle his thumbs for the rest of the trip.
 
